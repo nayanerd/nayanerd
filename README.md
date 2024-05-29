@@ -10,4 +10,4 @@ Meu nome é Nayanne
 
 Nayannerd890@gmail.com
 
-![](https://media1.tenor.com/m/XknQ34ZuXgUAAAAd/maria-jose-maria-cururu.gif)
+![](https://media1.tenor.com/m/DLL_63y0wCcAAAAd/maria-jose-maria-cururu.gif)
